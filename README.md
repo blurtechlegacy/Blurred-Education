@@ -1,1 +1,1 @@
-# Blurred-Education
+# Blurred Education
